@@ -1,5 +1,5 @@
 # My-Professional-Portfolio
-My professional CV, Projects, and Research in Blockchain &amp; Islamic Finance
+My Professional CV, Projects, and Research in Blockchain &amp; Islamic Finance
 
 MUHAMMAD FAISAL
 Web3 Financial Architect | Islamic Finance Researcher
