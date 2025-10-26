@@ -9,11 +9,13 @@ Web3 Financial Architect | Islamic Finance Researcher
 CONTACT INFORMATION
 
 Email: web3financialarchitect@gmail.com
+
 Phone: +923227269110
 
 Portfolio: https://beacons.ai/web3financialarchitect
 
 GitHub: https://github.com/web3financialarchitect
+
 Location: Sahiwal, Punjab, Pakistan
 
 
